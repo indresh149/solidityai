@@ -5,7 +5,7 @@
 
 ## Video
 
+https://github.com/indresh149/solidityai/assets/76736055/9ed2b21a-5b09-412d-b11d-97389603f53f
 
-Uploading vidddd.mp4…
 
 
